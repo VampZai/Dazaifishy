@@ -3,4 +3,4 @@
    𓂃.   𓂃.  
       𓂃.
 
-      ![image alt]([h](https://discord.com/channels/1158257717757104220/1158257719137022006/1340849370551160862))
+      ![image alt](7e9d5b0b70ffdb820b280050ebb7c26f-1.png)
